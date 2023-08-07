@@ -5,6 +5,6 @@ My research interest is focused on exploring how online education impacts learni
 
 [My Google Scholar Link] (https://scholar.google.com/citations?user=A9M5JnIAAAAJ&hl=en)
 
-[My LinkedIn Link] (linkedin.com/in/lakshi-nantha)
+[My LinkedIn Link] (https://www.linkedin.com/in/lakshi-nantha/))
 
 I'm an undergraduate student of BSc in Information Technology at the University of Vavuniya
